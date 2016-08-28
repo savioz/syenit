@@ -1,2 +1,2 @@
 # syenit
-a new start
+a new start for new life
